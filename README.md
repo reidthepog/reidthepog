@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning basically how to code at all
 - 🤔 I’m looking for help with my github page and bot (feel free to submit a pr)
-- 📫 How to reach me: https://wasteof.money/users/reid or reidling#1971
+- 📫 How to reach me: https://wasteof.money/users/reid or reidling#1971 on discord
 - 😄 Pronouns: any (subject to change)
 <!-- - ⚡ Fun fact: -->
 
