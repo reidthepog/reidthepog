@@ -6,7 +6,7 @@
 
 <!-- - 🌱 I’m currently learning ju -->
 - 🤔 I’m looking for help with my github page and discord bot
-- 📫 How to reach me: https://wasteof.money/users/reid or reidling#1971 on discord
+- 📫 How to reach me: https://wasteof.money/users/reid or reidling#6969 on discord
 - 😄 Pronouns: any 
 <!-- - ⚡ Fun fact: -->
 
